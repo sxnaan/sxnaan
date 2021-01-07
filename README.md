@@ -11,7 +11,7 @@ my name is sinaan younus `[sin-ahh-n you-niss]` (he/him) and i'm currently a sop
   - https://theeduproject.net
   - https://tahiracademy.org (currently being revamped as of 1.7.2021)
 - 📚 i'm also very interested in other domains like political economy, philosophy, logic, linguisitics, and architechture (buildings, not computers)
-- 🍽 i love cooking -- my latest creation was ratatouille (yes like from the movie) with stuffed salmon
+- 🍽 like a lot of us, covid turned me into a home-cook -- my latest creation was ratatouille (yes like from the movie) with stuffed salmon, and i'm hoping to star in a season of master chef (junior) once its back on air
 ---
 ***you can find me here too:***
 - 🔗 https://www.linkedin.com/in/sinaanyounus/
