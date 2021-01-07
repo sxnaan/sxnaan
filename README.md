@@ -13,6 +13,6 @@ my name is sinaan younus `[sin-ahh-n you-niss]` (he/him) and i'm currently a sop
 - 📚 i'm also very interested in other domains like political economy, philosophy, logic, linguisitics, and architechture (buildings, not computers)
 - 🍽 i love cooking -- my latest creation was ratatouille (yes like from the movie) with stuffed salmon
 
-##### you can find me here too:
+***you can find me here too:***
 - 🔗 https://www.linkedin.com/in/sinaanyounus/
 - 🔗 https://devpost.com/sinaan
