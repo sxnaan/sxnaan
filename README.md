@@ -12,6 +12,6 @@ my name is sinaan younus `[sin-ahh-n you-niss]` (he/him) and i'm currently a sop
   - https://tahiracademy.org (currently being revamped as of 1.7.2021)
 - 🍽 i love cooking -- my latest creation was ratatouille (yes like from the movie) with stuffed salmon
 
-`find me here too:`
+##### you can find me here too:
 - 🔗 https://www.linkedin.com/in/sinaanyounus/
 - 🔗 https://devpost.com/sinaan
