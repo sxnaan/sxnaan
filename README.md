@@ -6,7 +6,7 @@ my name is sinaan younus `[sin-ahh-n you-niss]` and i'm currently at the univers
 
 - i’m studying computer science and economics, and love working on projects with social impact
 - i'm fascinated by emerging technologies like ai/ml, and i'm building my experience through coursework and research
-- along with programming, i'm a freelance web designer! i plan on having a full portfolio up soon, but some of the sites i've made include https://theeduproject.net, https://tahiracademy.org (currently being revamped as of 11.1.2021), https://islaminbaltimore.org, and https://educationahmadiyya.us
+- along with programming, i'm a freelance web designer! i plan on having a full portfolio up soon, but some of the sites i've made include https://theeduproject.net, https://tahiracademy.org, https://islaminbaltimore.org, and https://educationahmadiyya.us
 
 ---
 ***you can find me here too:***
